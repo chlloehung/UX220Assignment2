@@ -1,1 +1,5 @@
 ### Young Writers of Canada
+
+In sixth grade, my class participated in a writing contest called the Young Writers of Canada for the opportunity to win a monetary award and have our work published alongside other contestants in a book. Writing had been a passion of mine since childhood, and creating a short story provided a wonderful outlet for expressing my creativity. A standout memory from this experience was the publication of my work in their book titled “Cloud of Butterflies.” My piece earned the Canadian Young Writers Certificaiton of Excellence, an accolade granted to only 30 winners across Canada. To this day, my published work is carefully on a shelf at home. Being a perfectionist in my writing, it was a very tedious process to write a story that I was satisfied with. This perfectionism came with its fair share of frustration and annoyance as it led me to discarding many ideas and starting afresh numerous times. 
+
+A - couldn’t be better as being among the 30 selected winners across Canada to receive the Certification of Excellence is truly an honour!
